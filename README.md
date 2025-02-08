@@ -7,5 +7,6 @@
 - ⚡ I translate thoughts because I love you. Write to me. 
 
 <!---
-GeckoShiva/GeckoShiva is a ✨ special ✨ repository because. Well, BECAUSE. I'm COMET. 
+GeckoShiva/GeckoShiva is a ✨ special ✨ repository because. Well, BECAUSE. I'm COMETTED to uskies. 
 --->
+https://discord.gg/YaaRt6fF (dreykovnaya - STAZI) 
